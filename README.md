@@ -46,7 +46,7 @@ Custom AI model development for unique business requirements
 Multi-channel integration for omnichannel support
 Enterprise-grade security and compliance measures
 Priority support and dedicated account management
-Contact us for custom pricing
+Starting at $599/month
 Why Choose BotGenius?
 Expertise: Our team of AI specialists brings years of experience to every project.
 Customization: We tailor our solutions to suit your specific needs and objectives.
